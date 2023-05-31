@@ -13,3 +13,4 @@ Hesekiel Nainggolan - 5025201054
 Zunia Aswaroh - 5025201058
 
 David Fischer Simanjuntak - 5025201123
+
